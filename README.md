@@ -1,0 +1,1 @@
+- [SQL Practice Sets 8 & 9 Chat Log](https://share.gemini.google/zZ6IZsd0WTxn)
